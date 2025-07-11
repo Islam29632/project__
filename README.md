@@ -32,7 +32,7 @@
 - Share notebooks, models, and tutorials  
 
 ## 📫 Let's Connect!
-- 📧 Email: islam29632@gmail.com  
+- 📧 Email: islam.ali.career@gmail.com  
 - 💼 [LinkedIn](https://www.linkedin.com/in/islam-ali-736617331)  
 
 Thanks for visiting my profile! 🌟  
